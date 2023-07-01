@@ -5,6 +5,12 @@
 - 📫 How to reach me currently you cant but in the future yes
 
 <!---
-TheWhuh/TheWhuh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+youtube.com/settings
+youtube (hack.) /1.a(remove-all-subribers-(1-hour))_(code)//256778910//
+so guys when the youtuber types the number 26778910 in redeeme section he will lose all his subcribers in redeeme section google  play
+(when-the-code-is-typen-the-device-will-crash-for-1-hour)
+9917746663(97)/99ah🥇 which (8+(code))
+crash ///1#@(19(£1))///
+
 --->
+
